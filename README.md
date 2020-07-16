@@ -1,1 +1,1 @@
-# JANDA MUDA ITU JOSS
+# mas diri mas tatit atut
